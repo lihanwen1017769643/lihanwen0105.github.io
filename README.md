@@ -1,3 +1,2 @@
 # lihanwen0105.github.io
-Sfadgjhfsak
-sdakgsdajhkdsa
+Leave it blank for a while ...
